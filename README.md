@@ -1,4 +1,4 @@
--Olá! Sou a @Prof Jucilei Riba
+-Olá! Sou a @Prof Jucilei Riba :smiley:
 
 -Sou professora do colégio Estadual Paulo Freire
 
